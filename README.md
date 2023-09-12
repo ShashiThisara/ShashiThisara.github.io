@@ -1,2 +1,0 @@
-# ShashiThisara.github.io
-portfolio
